@@ -11,3 +11,7 @@ Hi humans!
 Hubot her, i like node.js and coffesscript (that´s what I´m made of!).
 I´ve had tacos on the moon and find then far superior to earth tacos.
 master
+
+ya fui a ver los tacos, complen con las normar del libre comercio, genial dicen como es el producto que venden y a que precio lo ofertan 
+
+ya estoy deseando ver pasar los carros, de trasteo (invercion estranjera) y ver como esta calle empiesa a tener mayores veneficios
